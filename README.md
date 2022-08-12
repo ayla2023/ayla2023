@@ -1,4 +1,4 @@
-# Sobre mi
+# Sobre mim
                                                                                                                                                           
 - 👋 Olá meu nome é @ayla2023
 - :+1: Meu email de contato é ayla.squisatti@escola.pr.gov.br
